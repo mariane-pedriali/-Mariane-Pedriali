@@ -11,6 +11,10 @@ MARIANE-PEDRIALI
 
 - gosto de ouvir musicas de outras línguas principalmente em ing
 
+- minha comida favorita é pizza
+
+- minha soprimesa favoria é bolo de pote
+
   
 ![image](https://github.com/user-attachments/assets/6ca80c27-edd6-43d5-ad8e-3d86c2951a12)
 
